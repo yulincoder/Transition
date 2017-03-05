@@ -168,5 +168,5 @@
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000009.jpg "中国近代民生留影")
 **<br>54.未知<br><br>**
 
-![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/0000010.jpg "中国近代民生留影")
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000010.jpg "中国近代民生留影")
 **<br>55.未知<br><br>**
