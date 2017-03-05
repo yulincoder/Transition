@@ -86,3 +86,27 @@
 
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/xxxxxx11.jpg "中国近代民生留影")
 **<br>29.信息未知<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx01.jpg "中国近代民生留影")
+**<br>30.一只叫瓦尔特的小狗 北京 （1917-1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx02.jpg "中国近代民生留影")
+**<br>31.守在木签箱旁的小孩 江苏南京 （1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx03.jpg "中国近代民生留影")
+**<br>32.查理和新娘  北京（1917-1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1924or1927xx05.jpg "中国近代民生留影")
+**<br>33.耍杂技  北京妙峰山  （1924-1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1924or1927xx06.jpg "中国近代民生留影")
+**<br>34.乞讨的妇女  妙峰山 （1924-1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx04.jpg "中国近代民生留影")
+**<br>35.罗伯特·格林和单身汉们   北京（1917—1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx05.jpg "中国近代民生留影")
+**<br>34.通县鞋匠 北京 （1917—1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/xxxxxx12.jpg "中国近代民生留影")
+**<br>35.约翰·汤姆逊作品   “两名着冬装的福州苦力”<br><br>**
