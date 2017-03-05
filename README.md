@@ -128,3 +128,45 @@
 
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx09.jpg "中国近代民生留影")
 **<br>41.提着鸟笼的人  天津（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx10.jpg "中国近代民生留影")
+**<br>42.着肚兜的女童  河北北戴河（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1924or1927xx08.jpg "中国近代民生留影")
+**<br>43.造车轮  北京 （1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1931or1932xx02.jpg "中国近代民生留影")
+**<br>44.晏阳初先生和他的家人  河北定县（1931--1932）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1931or1932xx03.jpg "中国近代民生留影")
+**<br>45.收割谷子 河北定县（1931--1932）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000001.jpg "中国近代民生留影")
+**<br>46. 三个喇嘛  北京（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000002.jpg "中国近代民生留影")
+**<br>47.敲钟师傅  妙峰山（1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000003.jpg "中国近代民生留影")
+**<br>48.平民教育运动工作者  河北定县（1931--1932）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000004.jpg "中国近代民生留影")
+**<br>49.男孩  河北清西陵（1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000005.jpg "中国近代民生留影")
+**<br>50.满族妇女  热河省（1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000006.jpg "中国近代民生留影")
+**<br>51.刘老师   北京（1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000007.jpg "中国近代民生留影")
+**<br>52.老人  北京保定府 （1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000008.jpg "中国近代民生留影")
+**<br>53.未知<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/000009.jpg "中国近代民生留影")
+**<br>54.未知<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/0000010.jpg "中国近代民生留影")
+**<br>55.未知<br><br>**
