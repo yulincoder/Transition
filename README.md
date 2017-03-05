@@ -110,3 +110,21 @@
 
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/xxxxxx12.jpg "中国近代民生留影")
 **<br>35.约翰·汤姆逊作品   “两名着冬装的福州苦力”<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx06.jpg "中国近代民生留影")
+**<br>36.吃饭的人和背景中的小孩  四川苏村（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1931or1932xx01.jpg "中国近代民生留影")
+**<br>37.收割谷子 河北定县（1931—1932）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1924or1927xx07.jpg "中国近代民生留影")
+**<br>38.教导主任  北京（1924--1927）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx07.jpg "中国近代民生留影")
+**<br>39.不良少年教养院做蓝子   北京（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx08.jpg "中国近代民生留影")
+**<br>40.小孩子（班尼） 天津（1917--1919）<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1917or1919xx09.jpg "中国近代民生留影")
+**<br>41.提着鸟笼的人  天津（1917--1919）<br><br>**
