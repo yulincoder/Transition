@@ -52,10 +52,7 @@
 **<br>17.被拐卖的孩童<br><br>**
 
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/190xxx01.jpg "中国近代民生留影")
-**<br>18.原图来自American Museum of Natural History的电子数据库，摄影师是Berthold Laufer (1874-1934)，20世纪初Franz Boas招募Berthold Laufer和他一起去探索亚洲文化并且记录亚洲人的当代生活，他们与1897年踏上旅途，1901年进入中国，在他们穿越中国东部的3年旅途中Berthold Laufer搜集了7500件有代表性的当代中国人日用品，并且拍摄了大约143张照片，这张照片编号为336609，具体日期地点和人物已不可考。
+**<br>18.来自American Museum of Natural History数据库<br><br>**
 
-作者：刘泽坤
-链接：https://www.zhihu.com/question/20460317/answer/63541789
-来源：知乎
-著作权归作者所有。商业转载请联系作者获得授权，非商业转载请注明出处。<br><br>**
-
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/xxxxxx01.jpg "中国近代民生留影")
+**<br>19.信息未知<br><br>**
