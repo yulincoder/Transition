@@ -24,3 +24,31 @@
 ![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx01.jpg "中国近代民生留影")
 **<br>8.Child in Tiger Costume — 着老虎服的小孩<br><br>**
 
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx02.jpg "中国近代民生留影")
+**<br>9.早期留美幼童和美国孩子合照<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx03.jpg "中国近代民生留影")
+**<br>10.清末小镇的街景<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx04.jpg "中国近代民生留影")
+**<br>11.流浪孩子在表演龙头的造型<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx05.jpg "中国近代民生留影")
+**<br>12.二十年代，上海，船民<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx06.jpg "中国近代民生留影")
+**<br>13.八人抬的棺材，克林顿·米勒特(Clinton Millett)摄于抗战时期的昆明<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1945xx01.jpg "中国近代民生留影")
+**<br>14.1945年，五个小伙在向一名美国牧师展示他们的猎物<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/1937or1943xx01.jpg "中国近代民生留影")
+**<br>15.战争中的无名英雄——军需工厂工人的家，1937-1943<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx07.jpg "中国近代民生留影")
+**<br>16.艾伦·拉森摄，滇池附近公园里的小吃铺<br><br>**
+
+![Dream](http://ombtsbxdv.bkt.clouddn.com/Transition/normal/nodatexx08.jpg "中国近代民生留影")
+**<br>17.被拐卖的孩童<br><br>**
+
+
